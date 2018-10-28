@@ -1,2 +1,0 @@
-# Estudent
-Documento de Importancia
